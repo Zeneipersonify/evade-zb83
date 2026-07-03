@@ -1,4 +1,4 @@
-#  
+#  Experience evade like never before with evade Scripts custom, the #1 Script. Includes anti-ban and speed for unbeatable performance.
 
 
 
